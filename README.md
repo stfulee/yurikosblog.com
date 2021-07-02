@@ -1,1 +1,0 @@
-# yurikosblog.com
